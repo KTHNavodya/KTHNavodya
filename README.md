@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @KTHNavodya
+- 👋 Hi, I’m Hiruni Navodya
 - 🌱 I’m currently undergraduate student at NSBM Green UniveUniversity 
